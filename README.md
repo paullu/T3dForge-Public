@@ -1,10 +1,5 @@
 # T3dForge-Public
 T3dForge for Public
-vg
-tgyh
-ddddd
-TGFT
-rftggh
 1
 2
 3
